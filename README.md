@@ -1,0 +1,1 @@
+# parna-s-astronomy
